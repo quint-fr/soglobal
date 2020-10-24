@@ -1,2 +1,2 @@
 # soglobal
-Preuve de compétences pour une missions pour Solocal : https://www.clicrdv.com/fr/
+Preuve de compétences pour une mission pour Solocal : https://www.clicrdv.com/fr/
